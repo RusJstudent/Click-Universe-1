@@ -1,1 +1,1 @@
-https://rusjstudent.github.io/Clicker-Universe/
+https://rusjstudent.github.io/Click-Universe-1/
